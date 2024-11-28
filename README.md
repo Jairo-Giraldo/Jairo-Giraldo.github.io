@@ -1,1 +1,0 @@
-# Jairo-Giraldo.github.io
